@@ -15,3 +15,9 @@ resistant bacteria is essential to save lives and reduce the spread of antibioti
 for ten different micro-forms of life (Spirogyra, Volvox, Pithophora, Yeast, Raizopus, Penicillum,
 Aspergillus sp, Protozoa, Diatom, Ulothrix).
 
+![image](https://user-images.githubusercontent.com/58862894/182011526-511c5720-d5fe-4ee6-a728-da58a47da824.png)
+
+![image](https://user-images.githubusercontent.com/58862894/182011541-881e36c5-0a62-4951-95ef-f9a3167ab911.png)
+
+![image](https://user-images.githubusercontent.com/58862894/182011563-d5876467-824e-46e4-8b1e-f58e4b28b9af.png)
+
